@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @tgbypc
+- 👀 I’m interested in swimming,outdoor activites,books,and technology.
+- 🌱 I’m currently learning software development.
+- 💞️ I’m looking to collaborate on small projects during the learning process.
+- 📫 How to reach me tugbaypc.11@gmail.com.
+- 😄 Pronouns: She
+- ⚡ Fun fact: A group of flamingos is called a "flamboyance."
