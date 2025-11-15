@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @tgbypc
 - 👀 I’m interested in swimming,outdoor activites,books,and technology.
-- 🌱 I’m currently learning frontend developer.
+- 🌱 I’m  frontend web developer.
 - 💞️ I’m looking to collaborate on small projects during the learning process.
 - 📫 How to reach me tugbaypc.11@gmail.com.
 - 😄 Pronouns: She
